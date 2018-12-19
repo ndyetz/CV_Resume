@@ -1,2 +1,2 @@
 # CV_Resume
-Please view my CV &amp; resume.
+Please view my Curriculum Vitae &amp; resume.
